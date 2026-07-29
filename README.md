@@ -10,7 +10,7 @@
 
                feel free to int! Although I might not always respond (*´,_ゝ｀)
 
-    Multishipper  , really big fan of : piggy , fe2  , tlg , ns , tf2
+    Multishipper  , really big fan of : piggy , fe2  , tlg , bt, ns , tf2
     
 
     
