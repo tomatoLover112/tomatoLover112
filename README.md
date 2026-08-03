@@ -33,7 +33,7 @@
 
           pls do NOT assume I support the creators of forsaken , I simply only focus / like the characters !
 <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/81030a98-26e9-4a77-9e36-b48f1b1538ef" />
-<img width="385" height="20" alt="1000033802" src="https://github.com/user-attachments/assets/9684f092-0bc1-4b6a-9f34-966937223a37" /> <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/c9f88e54-81f3-4e98-b31c-89da7762ef89" />. .
+<img width="385" height="20" alt="1000033802" src="https://github.com/user-attachments/assets/9684f092-0bc1-4b6a-9f34-966937223a37" /> . .
 
 
 <img width="166" height="120" alt="1000033781" src="https://github.com/user-attachments/assets/ae73d759-6fa7-42a8-8697-2d8b3268234f" />
