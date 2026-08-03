@@ -4,7 +4,7 @@
 
 <img width="682" height="368" alt="1000033791" src="https://github.com/user-attachments/assets/17d78c78-e21a-4158-a154-9efea446ee2b" /> . .     
 <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/71a71215-c5a5-4a2c-8662-2a7064002541" />
-<img width="385" height="20" alt="1000033802" src="https://github.com/user-attachments/assets/058a0164-6877-46c4-a9eb-1bfc48cbc02b" />
+
 
 
 
@@ -20,20 +20,20 @@
      <:FloodIOS:fav interests;fe2, tlg , piggy,bt,ns,and so much more!:>
           do feel free to whisper me anytime ! tho understand i may not ALWAYS respond (((^_^;)
 <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/241e35a4-2537-4bec-b49b-f200ab745e5d" />
-<img width="385" height="20" alt="1000033802" src="https://github.com/user-attachments/assets/ea2ba425-efee-4935-bc50-5dc6b66c6019" />
+
 
 
        I do prefer he / him pronounce the most although im completely fine w they / them aswell !
                                     im aroace and libramasc 
    <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/293248a9-46d5-4b59-a27b-3efd62c46a75" />
-<img width="385" height="20" alt="1000033802" src="https://github.com/user-attachments/assets/88a83233-e2d2-4f15-bad5-d1bea9e50118" />
+
 
 
                <:FloodIOS: dni's ; homophobic , transphobic , racism , etc.
 
           pls do NOT assume I support the creators of forsaken , I simply only focus / like the characters !
 . . <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/81030a98-26e9-4a77-9e36-b48f1b1538ef" />
-<img width="385" height="20" alt="1000033802" src="https://github.com/user-attachments/assets/9684f092-0bc1-4b6a-9f34-966937223a37" /> <img width="385" height="20" alt="1000033803" src="https://github.com/user-attachments/assets/82c3864a-5e10-467d-87ae-cbe22f100d2c" />
+
 
 
 
