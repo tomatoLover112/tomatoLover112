@@ -1,6 +1,6 @@
-    <:FloodIOS:hi , im nelly:>
+    <:Flood.IO:hi , im nelly:>
        
-       <:FloodIOS: im a small content / artist known as tomatolover112 on twitter !:>
+       <:Flood.IO: im a small content / artist known as tomatolover112 on twitter !:>
 
 <img width="682" height="368" alt="1000033791" src="https://github.com/user-attachments/assets/17d78c78-e21a-4158-a154-9efea446ee2b" /> . .     
 <img width="620" height="15" alt="1000033924" src="https://github.com/user-attachments/assets/d16322d0-148c-4903-9fdc-7b997bdfd5ce" />
@@ -23,7 +23,7 @@
 
 
 
-     <:FloodIOS:fav interests;fe2, tlg , piggy,bt,ns,and so much more!:>
+     <:Flood.IO:fav interests;fe2, tlg , piggy,bt,ns,and so much more!:>
           do feel free to whisper me anytime ! tho understand i may not ALWAYS respond (((^_^;)
 <img width="507" height="15" alt="1000033926" src="https://github.com/user-attachments/assets/81e41e31-21d4-40ae-a721-49d37c88ea62" />
 
@@ -39,7 +39,7 @@
 
 
 
-               <:FloodIOS: dni's ; homophobic , transphobic , racism , etc.
+               <:Flood.IO: dni's ; homophobic , transphobic , racism , etc.
 
           pls do NOT assume I support the creators of forsaken , I simply only focus / like the characters !
 . . <img width="507" height="15" alt="1000033926" src="https://github.com/user-attachments/assets/50f521c2-ea81-41b3-bbc1-68459f901f6a" />
