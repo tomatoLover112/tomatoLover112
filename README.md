@@ -56,7 +56,7 @@
 <img width="744" height="368" alt="1000031945" src="https://github.com/user-attachments/assets/71840a08-bcad-4386-b278-4efa63327e02" />
 
 
-                               if u couldn't tell if really like crazyblox 1x (　:ﾟ皿ﾟ)
+                if u couldn't tell if really like crazyblox 1x (　:ﾟ皿ﾟ)
 
 
 
