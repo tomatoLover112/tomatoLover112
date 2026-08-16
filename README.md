@@ -25,7 +25,7 @@
                                                                                                                          
 <p align="center"> 
   <img width="2092" height="604" alt="1000035141" src="https://github.com/user-attachments/assets/5f4a0c27-3e9f-4a14-ac5f-a4e1dce9fdc9" />
-</p>
+</p> + regretevator bc I forgot..
 
 <img width="1351" height="10" alt="1000035150" src="https://github.com/user-attachments/assets/005f22ec-9bfe-4364-ac1a-252a33617e2b" />
 
