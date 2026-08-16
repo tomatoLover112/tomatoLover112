@@ -15,20 +15,25 @@
                              <; october 28th ;>
 
 
-                                                                                                                                                                                                                                                          
+                                                                                                                          ,,                                                                               ,,                                                 
 
                               ✚ ̣̣𓏼 ་࿔
 
 
 
-                                                                                                                                                                                                                                                                                                                      
-
+<img width="1351" height="10" alt="1000035150" src="https://github.com/user-attachments/assets/bc65e30b-ffc9-43c9-a7fd-0a4cb0ebdcc9" />
+                                                                                                                         
 <p align="center"> 
   <img width="2092" height="604" alt="1000035141" src="https://github.com/user-attachments/assets/5f4a0c27-3e9f-4a14-ac5f-a4e1dce9fdc9" />
 </p>
 
+<img width="1351" height="10" alt="1000035150" src="https://github.com/user-attachments/assets/005f22ec-9bfe-4364-ac1a-252a33617e2b" />
 
-                                                                                                                                                                                                                                               <p align="center">
+  ,,                                                                                                              ,,                                                                                                                                   <p align="center">
    <img width="744" height="368" alt="1000035145" src="https://github.com/user-attachments/assets/574b522b-f8e8-4c31-82a8-da7d9def0a03" />
-</p>                                                                                                                                                                                                                                            
-                                                                                                                                                                                                                                               
+   <img width="640" height="176" alt="1000035118" src="https://github.com/user-attachments/assets/1a8cc31e-a33a-4ffe-ba69-7ec282d14f44" />
+
+</p>          
+
+                        
+                                                                                                                ,,   [credits](https://floodescape.miraheze.org/wiki/Main_Page)   ,,                                                                        
