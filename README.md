@@ -8,8 +8,5 @@
 
 
 
-
-
-
-
-
+<img align="left" width="120" height="200" alt="1000035069" src="https://github.com/user-attachments/assets/2a6e6548-bc92-4a3b-929b-0ddf2e601dcf" /> still wip!! ^^
+[credits for icons](https://floodescape.miraheze.org/wiki/Main_Page)
